@@ -1,2 +1,0 @@
-# Bmttnc_PhanNgocTrungTin_2280603261
-PhanNgocTrungTin_2280603261_22DTHE8
